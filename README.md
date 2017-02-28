@@ -1,7 +1,11 @@
 # hello-world
-prueba para saber que cojones es github
-Hola Soy Paula Menéndez
--pa-ta-ta
+TE ACABO DE BORAR TODO MUAHAHA
 
-//el cmbio de las 16:00
 
+ASÍ APRENDERÁS
+
+
+HOLA CARACOLA
+
+
+:D
